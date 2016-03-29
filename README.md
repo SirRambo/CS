@@ -13,7 +13,7 @@ Second Scrim: WUJU Warriors
 
 3-9 (Shroud Boost, Loving It) - A SITE
 
-Positioning on A site was atrocious.
+Positioning on A site was atrocious. (WILL GO OVER at PRACTICE)
 
 After we Push something (A Main, Middle, B Main whatever) DO NOT PLAY Aggressive even if you are flashed in with a teammate they will be waiting for you. -SOMETHING TO NOTE
 
